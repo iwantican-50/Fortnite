@@ -217,4 +217,4 @@ Fortnite is available as a full free version with all features and updates inclu
 Join the battle today and download Fortnite for free to start your adventure!
 
 ---
-**Last updated:** 2026-09-22 15:22:30 UTC
+**Last updated:** 2026-09-22 19:30:47 UTC
